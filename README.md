@@ -1,5 +1,7 @@
 # MAC
-How to Install MAC OS through Pen Drive in Tamil  Language
+How to Install MAC OS through Pen Drive in Tamil  Language :
+
+https://www.youtube.com/watch?v=tdvmmx8G2Zc&list=PL7tRcAqqKgX5bDX3EqYRUx4kVHYQhMK7C
 
 THIS VIDEO IS USED TO LEARN HOW TO INSTALL MAC 
 OPERATING SYSTEM USING USB PENDRIVE.
@@ -22,6 +24,4 @@ OUR OFFICIAL TWITTER PAGE:
 
 https://twitter.com/tcgsiva
 
-OUR OFFICIAL GOOGLE PLUS PAGE:
 
-https://www.youtube.com/redirect?redir_token=6UvWsTH1ImO3S2DrsIUa_FgyQhR8MTU0MDYxNzg3OUAxNTQwNTMxNDc5&q=https%3A%2F%2Fplus.google.com%2F106813345816641878263&v=tdvmmx8G2Zc&event=video_description
